@@ -8,4 +8,5 @@ Some may see these as a pile of unrelated discipline.
 And, that... actually, may be true. Maybe.
 But I'm certain all of these knowledges will pay off. 
 "Scientia potentia est."
+Got damn I hate group assignments
 */
